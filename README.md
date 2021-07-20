@@ -1,5 +1,5 @@
 # Hi , I'm Pati Lobo 🐺
-**New FrontEnd Dev🛠 Growing up in this workflow🎢 I only put labels on my code🙆‍♀️**
+**New FrontEnd Dev🛠 Growing up in this workflow🎢 Only put labels on my code🙆‍♀️**
 
 
 ## 🐤 About me 
