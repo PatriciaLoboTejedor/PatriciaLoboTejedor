@@ -13,7 +13,7 @@ Proactive person with ease and willingness to learn, good leadership and relatio
 
 - 📫 How to reach me **patricialobotejedor@hotmail.com**
 
-- 📄 To know about my experiences read my [Curriculum](https://github.com/PatriciaLoboTejedor/PatriciaLoboTejedor/files/6843310/CV-Patricia.Lobo_FrontEnd.Developer-July21-02.pdf)
+- 📄 To know about my experiences read my [Curriculum](https://github.com/PatriciaLoboTejedor/PatriciaLoboTejedor/files/7262214/CV-Patricia.Lobo_FrontEnd.Developer.pdf)
 
 - ⚡ Fun fact **snowboarding❄️, 3d design, logic games and crafts**
 
